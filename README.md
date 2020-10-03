@@ -1,0 +1,2 @@
+# smtsehat
+Tradisional
